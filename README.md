@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @borghezio
+- 👀 I’m interested in padania
+- 🌱 I’m currently learning bresciano
+- 💞️ I’m looking to collaborate on federalismo
